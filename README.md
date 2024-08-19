@@ -1,2 +1,2 @@
 ### I'm onzecki!
-#### Check out my website at [oon.nz](https://oon.nz)
+#### Check out my website at [onz.ee](https://onz.ee)
